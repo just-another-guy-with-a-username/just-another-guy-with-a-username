@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to love
 - 💞️ I’m looking to collaborate on making a statue
 - 📫 How to reach me: probably with one of those grabber things
-- 😄 Pronouns: don't refer to me in the first person
+- 😄 Pronouns: don't refer to me in the third person
 - ⚡ Fun fact: facts are fun
 
 <!---
